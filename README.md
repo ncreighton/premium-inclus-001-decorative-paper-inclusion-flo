@@ -1,0 +1,2 @@
+# premium-inclus-001-decorative-paper-inclusion-flo
+Tired of wasting beautiful decorative paper on awkward placements that throw off your entire layout? The Decorative Paper Inclusion Flower Placement Guide gives you a repeatable system to position flowers and paper elements with perfect balance every time.  This Notion template solves the guesswork of where to put paper inclusions so your spreads l
